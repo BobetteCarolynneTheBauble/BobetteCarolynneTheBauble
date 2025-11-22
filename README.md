@@ -3,7 +3,7 @@
 
 <img width="574" height="371" alt="Captura" src="https://github.com/user-attachments/assets/af411fdd-75c9-4fbb-bfc6-badc5eb8d503" />
 
-## '' Did you hear what I said? I got salt in my head. ''
+## '' Don't eat ass in the halls! ''
 
 - ⬇ ok. about me? ok? ok. ⬇
 
