@@ -5,7 +5,7 @@
 
 <img width="660" height="287" alt="image" src="https://github.com/user-attachments/assets/f8a99380-b479-4e0d-930d-b5e4b4b54dda" />
 
-<img width="220" height="194" alt="image" src="https://github.com/user-attachments/assets/8b742472-aeab-4b4b-b388-ccf367cb7e77" />    
+my 5 github's account got suspended and flagged for being a minor
  
  ‡★‡★‡★‡★‡★‡★‡★‡★‡||
 
