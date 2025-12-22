@@ -5,7 +5,7 @@
 
 <img width="660" height="287" alt="image" src="https://github.com/user-attachments/assets/f8a99380-b479-4e0d-930d-b5e4b4b54dda" />
 
-my 5 github's account got suspended and flagged for being a minor
+if u found me on ponytown, talk to mehh!!1! but sometimes offtab/AFK and/or sleeping so„ (but u can c+h🥺ple)
  
  ‡★‡★‡★‡★‡★‡★‡★‡★‡||
 
