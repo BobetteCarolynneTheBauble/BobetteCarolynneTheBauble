@@ -3,8 +3,7 @@
 
 <img width="574" height="371" alt="Captura" src="https://github.com/user-attachments/assets/af411fdd-75c9-4fbb-bfc6-badc5eb8d503" />
 
-<img width="660" height="287" alt="image" src="https://github.com/user-attachments/assets/f8a99380-b479-4e0d-930d-b5e4b4b54dda" />
-
+06:48 PM[🎄 T! Bobette C. ‚ 🎄x🍪int] the floor~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
 if u found me on ponytown, talk to mehh!!1! but sometimes offtab/AFK and/or sleeping so„ (but u can c+h🥺ple)
  
  ‡★‡★‡★‡★‡★‡★‡★‡★‡||
