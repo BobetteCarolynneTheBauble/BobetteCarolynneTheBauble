@@ -10,4 +10,4 @@
   </a>
 </p>
 
-''𝗪𝗵𝗲𝗻 𝗜 𝗴𝗿𝗼𝘄 𝘂𝗽'' but im not smart enough 4 my mom😂😂😂
+The only ''girl'' I ever loved was [Andrew in drag](https://github.com/BLAM3J0HN) /lyr
