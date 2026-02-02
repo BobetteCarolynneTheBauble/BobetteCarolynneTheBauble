@@ -10,4 +10,4 @@
   </a>
 </p>
 
- ${{\color{#A52A2A}{\textsf{ ''the only 'girl' I ever loved was [Andrew in drag](https://github.com/BLAM3J0HN)'' }}}}$
+ ${{\color{#A52A2A}{\textsf{ hi }}}}$
