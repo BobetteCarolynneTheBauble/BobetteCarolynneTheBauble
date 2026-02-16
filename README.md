@@ -10,4 +10,5 @@
   </a>
 </p>
 
- ${{\color{#A52A2A}{\textsf{ hi im the CEO of bobette x ginger (shipped them when the update came out) ok bye }}}}$
+hi im the CEO of bobette x ginger ${{\color{#A52A2A}{\textsf{ (shipped them when the update came out) }}}}$
+i block ${{\color{#A52A2A}{\textsf{ FREELY }}}}$ if you make me uncomfortable ok?
