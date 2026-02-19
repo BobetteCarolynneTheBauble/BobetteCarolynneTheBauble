@@ -12,3 +12,5 @@
 
 hi im the CEO of bobette x ginger ${{\color{#A52A2A}{\textsf{ (shipped them when the update came out) }}}}$
 i block ${{\color{#A52A2A}{\textsf{ FREELY }}}}$ if you make me uncomfortable ok?
+if you think ${{\color{#FF0000}\textsf{ DOUBLES }}}}$ exist, pls dni unless friend/i know you if you're: 
+a [Bobette](https://dandysworld.fandom.com/es/wiki/Bobette) fictkin. (mostly ok?)
