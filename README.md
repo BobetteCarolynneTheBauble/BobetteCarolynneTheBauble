@@ -14,4 +14,4 @@ hi im the CEO of bobette x ginger ${{\color{#A52A2A}{\textsf{ (shipped them when
 
 i block ${{\color{#A52A2A}{\textsf{ FREELY }}}}$ if you make me uncomfortable ok?
 
-b
+mostly offtab cuz i can't find my headphones bruv psl whisper me cuz i'm fat :/
